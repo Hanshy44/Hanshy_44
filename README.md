@@ -1,5 +1,1 @@
-I'm a new programmer my name's Hanshy Jillo# Hanshy_44
-i'm currently starting my journey in computer programming.
-I'm studying computer programming and have done my computer basics and analitics.....
-I shant give away my current projects but a hint* ai programming.....
-Find me at IYFProgramming@Gmail.com
+
